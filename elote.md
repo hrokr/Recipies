@@ -12,16 +12,16 @@ Sauce (per piece of corn, scale accordingly):
 	to taste:
 	cillantro
 	black pepper (preferbly fresh ground)
-        Chile powder (chipotle is my favorite), pepper
+    Chile powder (chipotle is my favorite), pepper
 
 Method of Production:
-         1. Grill corn in husks. Blacked outside is just fine.
+     1. Grill corn in husks. Blacked outside is just fine.
 	 2. Mix sauce ingreedents.
 	 3. Remove husks.
 	 4. Sauce and serve.
 
 Serving (pick one method):
-         corn on the cob style
+     corn on the cob style
 	 on a stick
 	 using husks as handle (this can be the most messy)
 	
