@@ -28,4 +28,4 @@ Put chicken on onions. Scatter with olives. Quarter the lemons, remove pulp and 
 Cover tagine or skillet. Place over low heat, and cook about 30 minutes, until chicken is done. Scatter parsley on top, and serve.
 
 Notes:
-The cinnamon stick is important, as is either preserved olives (with the pulp) or lemon zest. Lemon pith is too biter in unpreserved lemons. On the other hand the lemon pulp brightens the whole dish. It'smuch more important to get the spices on the meat than the skin.
+The cinnamon stick is important, as is either preserved lemon (with the pulp) or lemon zest. Lemon pith is too biter in unpreserved lemons. On the other hand the lemon pulp brightens the whole dish. It'smuch more important to get the spices on the meat than the skin.
