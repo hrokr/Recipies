@@ -1,29 +1,24 @@
 
-Ingredients:
-	Corn - husks on
-
-Sauce (per piece of corn, scale accordingly):
-	1/4 c. Mayonaisse
+## Ingredients:
+    Corn - husks on
+	1/4 c. Mayonnaise
 	1/4 c. Sour Cream
-	1/4 c. Cojita cheese
-		Acceptabel substitutes are Oaxacan, or queso fresca
-	1 lime - use all of zest with with a peeler and finely minced or with a citrus zester. Also, use between 1/2 and the entire lime's juice.
+	1/4 c. Cotija cheese (Acceptable substitutes are Oaxacan, or queso fresca)
+	1 lime - use all of the zest and between 1/2 and the entire lime's juice.
+	cilantro (to taste)
+	black pepper (to taste)
+    Chile powder (chipotle works well)
 
-	to taste:
-	cillantro
-	black pepper (preferbly fresh ground)
-    Chile powder (chipotle is my favorite), pepper
+## Instructions:
+1. Grill corn in husks. Blacked outside is just fine.
+2. Mix ingredients.
+3. Remove husks.
+4. Sauce and serve.
 
-Method of Production:
-     1. Grill corn in husks. Blacked outside is just fine.
-	 2. Mix sauce ingreedents.
-	 3. Remove husks.
-	 4. Sauce and serve.
-
-Serving (pick one method):
-     corn on the cob style
-	 on a stick
-	 using husks as handle (this can be the most messy)
+## Serving (pick one method):
+ - corn on the cob style
+ - on a stick
+ - using husks as handle (this can be messy)
 	
 
 
