@@ -18,14 +18,14 @@ Depending how how long it takes the oven to warm up, this is a good time to preh
 
 ### For the filing:
 
-    1-2   Tbsp oil                                  Heat
+    1-2   Tbsp oil                              Heat
     1     cup onion chopped (white or yellow)       
     2     carrots, small dice                       
-                                                    cook onions and carrots 3-5 min
+                                                cook onions and carrots 3-5 min
 
-    2     garlic					            add; cook 30 sec
+    2     garlic					        add; cook 30 sec
 
-    1-1/2 Lbs ground meat (lamb is the standard)    cook
+    1-1/2 Lbs ground meat (lamb is the standard) cook
 
     2     Tbsp tomato paste
     1     tsp Worcestershire sauce
@@ -37,12 +37,12 @@ Depending how how long it takes the oven to warm up, this is a good time to preh
     1/2   Tbsp sage
     1     cup chicken broth
 
-    1/2   cup corn					            check seasoning
+    1/2   cup corn					         check seasoning
 
-    1/2   cup peas (preferably frozen)	            Add and mix 
+    1/2   cup peas (preferably frozen)	        Add and mix 
 
 
 Cook the above in a dutch oven. Cover with potatoes fluff potatoes with fork to help make areas where they will be a bit crispy.
 
-Bake uncovered for about 30 min. The potatoes should be brown. This needs 10-15 min to cool to a point where it can be eaten. 
+Bake uncovered for about 30 min. The potatoes should be brown. This needs 10-15 min to cool to a point where it can be eat. 
 
