@@ -14,9 +14,9 @@
 
 Oven to 350. Grease loaf pan
 
-Add the wet ingredients and mix. Creaming the butter is great as is melting it mostly or mixing with hands. Add in dry ingredients. 
+Add the wet ingredients and mix. Creaming the butter is great, as is melting it mostly or mixing with hands. Add in dry ingredients. 
 
-Back about 50 min. Toothpick test
+Bake about 50 min. Toothpick test
 
 
 
