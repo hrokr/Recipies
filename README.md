@@ -1,5 +1,3 @@
 # Recipies
 
-Yes, actual recipies.
-
-Ones that work well but without useless story telling.
+Yes, actual recipies that work well - just without useless story telling.
